@@ -1,4 +1,4 @@
-
+Experience fisch it like never before with custom Scripts for fisch it, the #1 Script. Includes one-hit kill and auto-collect for unbeatable
 
 
 
